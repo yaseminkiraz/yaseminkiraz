@@ -8,10 +8,6 @@ My background is in Computer Engineering at Kocaeli University, Turkey.
 
 Currently, i live in Berlin. I am working as a Software Engineer.
 
-I love learning new techniques and technologies.
-
-I am currently working on something cool. :wink:
-
 :small_blue_diamond: 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/yaseminkiraz/)
 
 :small_blue_diamond: ⚡ Fun fact: I ❤️ :seedling:  :coffee:  :snowboarder: 
